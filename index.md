@@ -33,13 +33,13 @@ colinvelsch@hotmail.fr
 
 ## Stages Universitaires
 
-- **[Intitulé du stage 1]**  
-  (Nom de l'entreprise, lieu)  
-  Janvier 2023 - Octobre 2023  
+- **[Chargé de communication]**  
+  (Office de Tourisme, Andernos-les-bains)  
+ mai 2023 - juin 2023  
 
-- **[Intitulé du stage 2]**  
-  (Nom de l'entreprise, lieu)  
-  Juin 2023  
+- **[Community Manager]**  
+  (Frog and Rosbif Bordeaux)  
+  Juin 2024  
 
 ---
 
